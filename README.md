@@ -1,3 +1,3 @@
-- 👋Hail, I'm @Onisamy
+- 👋Hail, I'm @Onimsay
 - 🌱 I'm studying a lot
 - ⚡Happiness?
